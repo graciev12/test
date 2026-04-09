@@ -2,4 +2,4 @@
 title: "What culture is this associated with? "
 ---
 
-The Staff God is depicted within the Chavin culture pulling from the ferocity of 
+The Staff God is depicted within the Chavin culture pulling from the ferocity of apex predators residing in the jungle. 
